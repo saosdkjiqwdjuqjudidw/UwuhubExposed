@@ -3,6 +3,7 @@ Forwarded
 @everyone 
 
 # retard says i pasted from him when he skidded my glass bridge antifall, autofarm, flight, emotes, player attach, visuals and tried to make a shit copy of instant be guard and anticrackv2
+# also hes tryna to skid my "anticheat bypass" which was just clearing and bumping tables that got patched already
 <img width="791" height="516" alt="image" src="https://github.com/user-attachments/assets/a48448cd-0e70-4a11-b162-38b6a4b77a2d" />
 
 
@@ -55,7 +56,7 @@ go in uwu hub dc and spam in general chat github repository with the all sources
 
 <img width="528" height="141" alt="image" src="https://github.com/user-attachments/assets/6296f5e9-bea9-4e25-9a1b-6cbefa39d2e9" />
 
-# also hes larping like his old script was detected by uwu sound but it was just fucking namecall hooking which is detectable since 2025
+# also hes larping like his old script was detected by uwu sound but it was just namecall hooking which is detectable since 2025
 
 <img width="615" height="229" alt="image" src="https://github.com/user-attachments/assets/83429962-f4dd-4aa7-8413-fcf387e8f216" />
 
